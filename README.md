@@ -1,2 +1,0 @@
-# climate-change
-Civics issue
